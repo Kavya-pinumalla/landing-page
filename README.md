@@ -1,0 +1,1 @@
+This landing page is designed to capture the essence of travel and adventure, enticing visitors to explore new destinations. It features visually stunning imagery, compelling calls to action, and essential information about travel services.
